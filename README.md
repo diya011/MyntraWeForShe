@@ -30,6 +30,14 @@ Diya Sharma
 Anushka
 Khushi Tiwary
 
+Here's our ppt for detailed solution : 
+[ppt](https://github.com/user-attachments/files/16323277/BitMesra_Shiva.sDen.pdf)
+
+For the Video solution : 
+try-on : https://github.com/user-attachments/assets/04441290-e1d5-471c-b02a-7fd00cd4ecca
+personalized wardrobe : https://github.com/user-attachments/assets/03a666ca-b71c-4ff9-989f-252ca79da1ba
+
+
 **Contact**
 For any queries or feedback, please contact us at [diya70559@gmail.com].
-[BitMesra_Shiva'sDen.pdf](https://github.com/user-attachments/files/16323277/BitMesra_Shiva.sDen.pdf)
+
